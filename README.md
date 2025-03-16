@@ -2,6 +2,8 @@
 
 **HDO Box** is a powerful, all-in-one streaming app that provides users with access to **high-definition movies and TV shows** across **Android, iOS, and Firestick**. With a sleek and easy-to-use interface, HDO Box allows you to browse and enjoy a vast library of content effortlessly. From action-packed blockbusters to heartwarming dramas, **HDO Box** offers something for everyone.
 
+[HDO Box for Android, iOS, and Firestick](https://1kb.link/IOn42y)
+
 ## 🚀 Why Choose HDO Box?
 
 HDO Box stands out from other streaming apps with its **user-friendly features and free, high-quality content**:
